@@ -6,7 +6,10 @@
 
 ## Project Data
 
-Description.
+36ty5 beat
+https://www.beatstars.com/beat/swear-ta-god-lil-wayne-type-beat-4633960
+https://www.beatstars.com/beat/exodus-asap-rocky-type-beat-4624827
+https://www.beatstars.com/beat/hit-my-line-don-toliver-4423541
 
 > **Title:**  / **Featuring:** 
 
@@ -22,6 +25,22 @@ Description.
 ## Lyrics
 
 ```
+
+takie życie czegokolwiek ci nie powiem
+wciśniesz w glebę choć reakcji się nie dowiesz
+
+to podziemie klepie mnie po plecach  
+mimo, że go nie ma światła grona popleczników 
+słońce daje mi po głowie mimo, że go nie ma 
+
+jestem dwulicowy jestem cieniem
+rzucam cienie, dwa odbicia od księżyca drugiej strony
+skrytą ciemną fazą świadomości, składam moje (trefne) dwie połowy
+
+introwertyk skonał w dybach na publice
+liczył na to, że nie dozna krzywdy
+w czterech ścianach nie ma sceny
+łącze zrywa, każdy zna samotność to okazja do niebycia
 
 
 ```
