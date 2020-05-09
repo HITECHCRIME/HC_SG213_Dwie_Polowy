@@ -8,6 +8,8 @@
 
 36ty5 beat
 https://www.beatstars.com/beat/hit-my-line-don-toliver-4423541
+or
+https://www.beatstars.com/beat/heavy-bags-meek-x-conway-type-beat-4421015
 
 > **Title:**  / **Featuring:** 
 
@@ -40,6 +42,8 @@ liczył na to, że nie dozna krzywdy
 w czterech ścianach nie ma sceny
 łącze zrywa, każdy zna samotność to okazja do niebycia
 
+odkrywam nowe skrawki tożsamości
+połamane kości, worek kości
 
 ```
 
