@@ -1,14 +1,12 @@
 [cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# MOTHNODE_ Trzy Polowy
 
 **Listen now:** 
 
 ## Project Data
 
 36ty5 beat
-https://www.beatstars.com/beat/swear-ta-god-lil-wayne-type-beat-4633960
-https://www.beatstars.com/beat/exodus-asap-rocky-type-beat-4624827
 https://www.beatstars.com/beat/hit-my-line-don-toliver-4423541
 
 > **Title:**  / **Featuring:** 
