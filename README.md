@@ -27,7 +27,7 @@ https://www.beatstars.com/beat/heavy-bags-meek-x-conway-type-beat-4421015
 ```
 
 takie życie czegokolwiek ci nie powiem
-wciśniesz w glebę choć reakcji się nie dowiesz
+(wciśniesz) w glebę choć reakcji się nie dowiesz
 
 to podziemie klepie mnie po plecach  
 mimo, że go nie ma światła grona popleczników 
@@ -40,7 +40,10 @@ rzucam cienie, dwa odbicia od księżyca drugiej strony
 introwertyk skonał w dybach na publice
 liczył na to, że nie dozna krzywdy
 w czterech ścianach nie ma sceny
-łącze zrywa, każdy zna samotność to okazja do niebycia
+łącze zrywa, każdy zna (rana)
+samotność to okazja do niebycia
+
+rana
 
 odkrywam nowe skrawki tożsamości
 połamane kości, worek kości
