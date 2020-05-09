@@ -30,7 +30,7 @@ takie życie czegokolwiek ci nie powiem
 (wciśniesz) w glebę choć reakcji się nie dowiesz
 
 to podziemie klepie mnie po plecach  
-mimo, że go nie ma światła grona popleczników 
+mimo, że go nie ma światła grona popleczników  /// w gronie popleczników
 słońce daje mi po głowie mimo, że go nie ma 
 
 jestem dwulicowy jestem cieniem
