@@ -35,7 +35,7 @@ słońce daje mi po głowie mimo, że go nie ma
 
 jestem dwulicowy jestem cieniem
 rzucam cienie, dwa odbicia od księżyca drugiej strony
-skrytą ciemną fazą świadomości, składam moje (trefne) dwie połowy
+skrytą ciemną fazą świadomości, składam moje (trefne) dwie połowy (trefne trzy połowy)
 
 introwertyk skonał w dybach na publice
 liczył na to, że nie dozna krzywdy
