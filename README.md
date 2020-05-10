@@ -27,15 +27,16 @@ https://www.beatstars.com/beat/heavy-bags-meek-x-conway-type-beat-4421015
 ```
 
 takie życie czegokolwiek ci nie powiem
-(wciśniesz) w glebę choć reakcji się nie dowiesz
+ciśniesz w glebę choć reakcji się nie dowiesz
 
 to podziemie klepie mnie po plecach  
-mimo, że go nie ma światła grona popleczników  /// w gronie popleczników
+mimo, że go nie ma światła w gronie popleczników
 słońce daje mi po głowie mimo, że go nie ma 
 
 jestem dwulicowy jestem cieniem
 rzucam cienie, dwa odbicia od księżyca drugiej strony
-(skrytą) - ciemną fazą świadomości, składam moje (trefne) dwie połowy (trefne trzy połowy)
+(skrytą) ciemną fazą świadomości, składam moje (trefne) dwie połowy (trefne trzy połowy)
+nowe skrawki tożsamości znów odkrywam
 
 introwertyk skonał w dybach na publice
 liczył na to, że nie dozna krzywdy
@@ -43,9 +44,10 @@ w czterech ścianach nie ma sceny
 łącze zrywa, każdy zna (rana)
 samotność to okazja do niebycia
 
-rana
 
-odkrywam nowe skrawki tożsamości
+z rana każdy sen to prawda
+
+ 
 połamane kości, worek kości
 
 ```
