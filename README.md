@@ -25,6 +25,7 @@ https://www.beatstars.com/beat/heavy-bags-meek-x-conway-type-beat-4421015
 ## Lyrics
 
 ```
+takie życie to ktokolwiek tobie powie
 
 takie życie czegokolwiek ci nie powiem
 ciśniesz w glebę choć reakcji się nie dowiesz
