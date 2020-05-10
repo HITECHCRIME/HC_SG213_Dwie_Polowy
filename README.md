@@ -38,7 +38,8 @@ rzucam cienie, dwa odbicia od księżyca drugiej strony
 (skrytą) ciemną fazą świadomości, składam moje (trefne) dwie połowy (trefne trzy połowy)
 nowe skrawki tożsamości znów odkrywam
 
-introwertyk skonał w dybach na publice
+na publice introwertyk skonał w dybach
+
 liczył na to, że nie dozna krzywdy
 w czterech ścianach nie ma sceny
 łącze zrywa, każdy zna (rana)
