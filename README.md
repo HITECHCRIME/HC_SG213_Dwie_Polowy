@@ -55,6 +55,20 @@ z rana każdy sen to prawda
  
 połamane kości, worek kości
 
+such is life I won't tell you everything
+you're pushing me into the ground
+but you won't know the reaction
+it's the underground that pats me on the back
+even though there is no light among supporters
+the sun is on my head even though it's gone
+
+I am two-faced I'm a shadow
+I cast shadows, two reflections 
+from the moon's other side
+dark phase of consciousness
+I make three decent halves
+I discover new scraps of identity again
+
 ```
 
 ## Lore Notes
