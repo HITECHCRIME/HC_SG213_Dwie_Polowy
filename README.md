@@ -29,7 +29,6 @@ takie życie to ktokolwiek tobie powie
 
 takie życie czegokolwiek ci nie powiem
 ciśniesz w glebę choć reakcji się nie dowiesz
-
 to podziemie klepie mnie po plecach  
 mimo, że go nie ma światła w gronie popleczników
 słońce daje mi po głowie mimo, że go nie ma 
@@ -38,6 +37,11 @@ jestem dwulicowy jestem cieniem
 rzucam cienie, dwa odbicia od księżyca drugiej strony
 (skrytą) ciemną fazą świadomości, składam moje (trefne) dwie połowy (trefne trzy połowy)
 nowe skrawki tożsamości znów odkrywam
+
+zabić w sobie wszystkie myśli jak mdli ludzie wciąż namolni
+w samotności wolne role, cyrografem do popisu 
+chorych w obecności tej głupoty ja wysiadam moja pora
+szukaj igły w stogu ludzkiej świadomości
 
 introwertyk skonał w dybach
 w publiczności
